@@ -4,7 +4,10 @@ usually sitting in between the cookie run and idol and rhythm games areas if you
 
 main interests are cookie run, persona 2/3/4 i HATE 5 dont talk to me about it (/j its just the game with the story that i liked the least), metaphor, soulsborne, code vein, akuma no riddle, etc etc ask me for others. i dabble in genshin solely for the 4 characters ive been attached to at the hip for the last 2-4 years; i dont actually play anymore
 
+
+
 favs, bolded are the ones im REALLY fucking annoying about sorry
+
 **pastry**, snake fruit, licorice, **scorpion**, sour belt, madeleine, wind archer (cr)
 
 yukino (1 and 2 imagine making a character so good shes peak twice), basically all of the persona 2 cast for both games LAWL, emphasis on tatsuya, jun, sudou, **anna**, and junko i think about them the most, shinji, minato, aigis, yukari, toriumi/yko (sorry) (i could fix her), **metis**, **jin**, **izumi**, the rest of strega i guess 😒, yosuke, yukiko, marie (theres probably more i havent played p4 in forever sorry) (persona) 
